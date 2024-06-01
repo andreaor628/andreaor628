@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @andreaor628
 - 👀 I’m interested in AI
 - 🌱 I’m currently learning about ChatGPT
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on interesting projects
 - 📫 How to reach me andreaor628ATGAMIL
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I'm real
